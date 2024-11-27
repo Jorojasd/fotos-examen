@@ -18,6 +18,7 @@
 ![BREAKINGBAD](https://github.com/user-attachments/assets/b7ba9a7e-483a-42bc-ac50-1dce933a90c9)
 ![BLOQUEDEPRESIVO](https://github.com/user-attachments/assets/6622a385-4fc1-4fd3-9d35-9ba58b11ce85)
 ![BEEF](https://github.com/user-attachments/assets/0dd79310-a73c-4528-b358-d6b4b7ea1916)
+![foto](https://github.com/user-attachments/assets/3ba2fc90-e2be-4844-980d-2f4b2d9b227a)
 ![BAÑOMARIA](https://github.com/user-attachments/assets/5df934a7-f850-4e3e-a7af-e07f0d915cb2)
 ![ATLANTA](https://github.com/user-attachments/assets/3d94beaf-6ffa-496d-810c-92680c599b61)
 ![ARRESTEDDEVELOPMENT](https://github.com/user-attachments/assets/7f3f4b60-cfee-419b-a81f-e9449fce611a)
